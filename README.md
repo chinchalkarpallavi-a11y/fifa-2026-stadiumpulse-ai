@@ -1,0 +1,1 @@
+# fifa-2026-stadiumpulse-ai
